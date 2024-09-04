@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **Tech**
 
-- 📫 How to reach me **0746265834 | cmjzed@gmail.com**
+- 📫 How to reach me **cmjzed@gmail.com**
 
 - ⚡ Fun fact **Tech is Life**
 
